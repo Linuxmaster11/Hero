@@ -57,7 +57,8 @@
 
 ## sᴘᴇᴄɪᴀʟ ᴄʀᴇᴅɪᴛ
 
-[Abhimanyu](https://t.me/Itz_Venom_xD) 
+[Abhimanyu](https://t.me/Linuxmaster11
+) 
 
 ## ᴀᴄᴋɴᴏᴡʟᴇᴅɢᴇᴍᴇɴᴛs
 
